@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @NitXQ
+- 👀 I’m interested in gaming, programming and traveling
+- 📫 https://twitter.com/scorpygg
