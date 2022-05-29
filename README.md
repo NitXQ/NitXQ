@@ -1,3 +1,4 @@
 - 👋 Hi, I’m @NitXQ
-- 👀 I’m interested in gaming, programming and traveling
+- 👀 I’m interested in gaming, esports, programming and traveling. 
+- 🫠 Currently don't do any public facing work, mostly working on private & corporate developments. But maybe someday this will change. Fingers crossed. 🤞	
 - 📫 https://twitter.com/scorpygg
